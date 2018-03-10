@@ -1,2 +1,2 @@
-# Condit
+# Toktaliev Mikhail
 T
